@@ -1,0 +1,2 @@
+bagulho
+louco doido
